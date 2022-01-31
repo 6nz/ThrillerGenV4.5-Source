@@ -1,2 +1,2 @@
 # ThrillerGenV4.5-Source
-ofc kids added a token/cookie logger lol
+Man logged my friend so I decided to reverse the exe and reverse the encrypted code...
